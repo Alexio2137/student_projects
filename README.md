@@ -1,2 +1,2 @@
 # student_projects
-moje projekty :)
+Jezus mnie oświecił!!
